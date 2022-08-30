@@ -1,1 +1,1 @@
-God is good
+This is the beginning of something great
